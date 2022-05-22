@@ -7,7 +7,7 @@
 
 - 📫 Você me acha através do e-mail **carlos.silva.08@hotmail.com**
 
-- 📄 Minha experiência profissional está disponível em [linkedin.com/in/carlos-antonio-oliveira-da-silva-82a7a141](linkedin.com/in/carlos-antonio-oliveira-da-silva-82a7a141)
+- 📄 Minha experiência profissional está disponível em www.linkedin.com/in/carlos-silva-dev-web 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
